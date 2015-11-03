@@ -1,2 +1,2 @@
 # splendor
-provide job opportunity for elderly man
+provide job opportunity for elderly people
